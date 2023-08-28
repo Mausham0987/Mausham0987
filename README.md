@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mausham0987
+- 👋 Hi, I’m Mausham Thapa
 - 👀 I’m interested in Graphic designer
 - 🌱 I’m currently learning Cloud Computing
 - 📫 How to reach me maushamthapa123@gmail.com
